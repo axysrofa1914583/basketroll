@@ -1,1 +1,1 @@
-The NBA consists of 30 teams divided into two conferences, the Eastern Conference and the Western Conference, each containing three divisions.
+The objective of the game is to score points by shooting the basketball through the opposing team's hoop, which is mounted 10 feet above the floor.
