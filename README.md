@@ -1,1 +1,1 @@
-The first official game of basketball was played on December 21, 1891, with nine players on each team and a soccer ball thrown into peach baskets serving as goals.
+The first public basketball game was played in Springfield, Massachusetts, where Naismith taught, and the sport quickly gained popularity across the United States and around the world.
