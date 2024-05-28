@@ -1,1 +1,1 @@
-Kareem Abdul-Jabbar, known for his skyhook shot, is the NBA's all-time leading scorer, with 38,387 points scored over his 20-season career.
+Roger Federer holds the record for the most Grand Slam singles titles by a male player, with 20 titles won between 2003 and 2018.
