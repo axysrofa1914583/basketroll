@@ -1,1 +1,1 @@
-The Boston Celtics hold the record for the most NBA championships, with a total of 17 titles won between 1957 and 2020.
+Wilt Chamberlain holds numerous NBA records, including the most points scored in a single game (100) and the highest single-season scoring average (50.4 points per game).
