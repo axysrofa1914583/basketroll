@@ -1,1 +1,1 @@
-The first official game of basketball was played on December 21, 1891, with nine players on each team and a soccer ball used as the first basketball.
+The United States men's basketball team has won the most Olympic gold medals in basketball, with a total of 15 gold medals as of the 2020 Tokyo Olympics.
