@@ -1,1 +1,1 @@
-The United States men's basketball team has won the most Olympic gold medals in basketball, with a total of 15 gold medals as of the 2020 Tokyo Olympics.
+The first public basketball game was played in Springfield, Massachusetts, where Naismith taught, and the sport quickly gained popularity across the United States and around the world.
