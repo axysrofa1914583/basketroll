@@ -1,1 +1,1 @@
-The first public basketball game was played in Springfield, Massachusetts, where Naismith taught, and the sport quickly gained popularity across the United States and around the world.
+The NBA has a massive international following, with broadcasts reaching over 200 countries and territories and players from over 40 countries represented in the league.
