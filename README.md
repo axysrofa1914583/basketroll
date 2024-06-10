@@ -1,1 +1,1 @@
-Kareem Abdul-Jabbar holds the record for the most points scored in NBA history, with 38,387 points scored over his illustrious career.
+The Boston Celtics hold the record for the most NBA championships, with a total of 17 titles won between 1957 and 2020.
