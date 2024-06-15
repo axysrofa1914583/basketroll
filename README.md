@@ -1,1 +1,1 @@
-The Naismith Memorial Basketball Hall of Fame, located in Springfield, Massachusetts, honors players, coaches, referees, and other contributors to the sport of basketball.
+Induction into the Basketball Hall of Fame is one of the highest honors in basketball, recognizing individuals for their outstanding achievements and contributions to the game.
