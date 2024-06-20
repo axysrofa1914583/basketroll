@@ -1,1 +1,1 @@
-Martina Navratilova holds the record for the most singles titles won in the Open Era, with 167 titles to her name.
+The first official game of basketball was played on December 21, 1891, with nine players on each team and a soccer ball thrown into peach baskets serving as goals.
