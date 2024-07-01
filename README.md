@@ -1,1 +1,1 @@
-Players can move the ball by dribbling (bouncing) it while walking or running, passing it to teammates, or shooting it toward the hoop to score field goals worth two or three points.
+Roger Federer holds the record for the most Grand Slam singles titles by a male player, with 20 titles won between 2003 and 2018.
