@@ -1,1 +1,1 @@
-The first public basketball game was played in Springfield, Massachusetts, where Naismith taught, and the sport quickly gained popularity across the United States and around the world.
+The NBA (National Basketball Association) was founded on June 6, 1946, as the Basketball Association of America (BAA) and merged with the National Basketball League (NBL) in 1949 to form the NBA.
