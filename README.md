@@ -1,1 +1,1 @@
-The first Wimbledon Championships, the oldest tennis tournament in the world, was held in 1877 at the All England Lawn Tennis and Croquet Club in Wimbledon, London.
+Basketball was invented in December 1891 by Dr. James Naismith, a Canadian physical education instructor, as an indoor game to keep his students active during the winter months.
