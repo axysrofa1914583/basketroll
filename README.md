@@ -1,1 +1,1 @@
-Michael Jordan, widely regarded as one of the greatest basketball players of all time, won six NBA championships with the Chicago Bulls and earned five regular-season MVP awards.
+Basketball has had a significant influence on pop culture, inspiring films, music, fashion, and art, with iconic figures like Michael Jordan and LeBron James becoming global cultural icons.
