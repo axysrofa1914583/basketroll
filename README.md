@@ -1,1 +1,1 @@
-The objective of the game is to score points by shooting the basketball through the opposing team's hoop, which is mounted 10 feet above the floor.
+The first official game of basketball was played on December 21, 1891, with nine players on each team and a soccer ball used as the first basketball.
