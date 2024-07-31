@@ -1,1 +1,1 @@
-The first slam dunk in basketball history is credited to Joe Fortenberry during the 1936 Olympic Games, where basketball was introduced as an official Olympic sport for the first time.
+The Boston Celtics hold the record for the most NBA championships, with 17 titles won as of 2022, followed by the Los Angeles Lakers with 17 championships.
