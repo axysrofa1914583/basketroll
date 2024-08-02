@@ -1,1 +1,1 @@
-The first Wimbledon Championships, the oldest tennis tournament in the world, was held in 1877 at the All England Lawn Tennis and Croquet Club in Wimbledon, London.
+Players can move the ball by dribbling (bouncing) it while walking or running, passing it to teammates, or shooting it toward the hoop to score field goals worth two or three points.
